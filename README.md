@@ -11,4 +11,4 @@ c*h freely ok i dont bite
 
 ![south-park-kyutters](https://github.com/user-attachments/assets/fc9584ad-abf1-4bdf-8bd5-46b8c96774f3)
 
-any ships with cartman are on thin ice. cartters on HARD dni
+any ships with cartman are on thin ice. cartters/kyman on HARD dni
