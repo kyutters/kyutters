@@ -1,6 +1,8 @@
 ![south-park-stan-marsh](https://github.com/user-attachments/assets/79b4ec04-bf4d-499b-b784-460861f8bf6a)
 
-my name is vale and im an awkward fella. he/any osdd-1b system
+my name is vale and im an awkward fella. he/any osdd-1b sys
+
+butters fictive im sorry if that bothers you or makes you uncomfortable
 
 i dont mind ships just dont be weird with me alright
 
