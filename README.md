@@ -17,6 +17,10 @@ c*h freely ok i dont bite
 
 any ships with cartman are on thin ice. cartters/kyman on HARD dni
 
-im always on dnd but that doesnt mean dni ok but if im on idle im not on tab
+dnd = int, semi-afk
+
+idle = not on tab, away
+
+'fict' in my names does not mean fictionkin. its fictive :-P
 
 just be nice and we are kool.
