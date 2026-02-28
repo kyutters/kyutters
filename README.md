@@ -1,26 +1,92 @@
-![south-park-stan-marsh](https://github.com/user-attachments/assets/79b4ec04-bf4d-499b-b784-460861f8bf6a)
+<p align="center">
+  <img src=https://media1.tenor.com/m/hqy5gF2Q02cAAAAC/south-park-kyutters.gif">
+</a>
+</p>
 
-my name is vale and im an awkward fella. system
+<p align="center">
+  
+  <img src="https://64.media.tumblr.com/dcb2d77f3fe8e29933aec6c1bb32fd3e/56633e57e8d43c46-47/s100x200/c6231ae7cbf336325089723f3b72240ea16df7e8.gifv"> 
+  <img src="https://64.media.tumblr.com/f6fd7cc5bc8d7a71c66f99ea164821ba/3ed6ac9dd167de1d-e8/s100x200/4a540d08286a183dcf62f0381fde6f08d6b1206b.jpg">
+  </a>
+</p>
 
-butters fictive im sorry if that bothers you or makes you uncomfortable
+<p align="center">
+$\color{orange}{\textsf{kyutters}}$ $\color{turquoise}{\textsf{enthusiastic}}$
+</a>
+</p>
 
-i dont mind ships just dont be weird with me alright
+<p align="center">
+vale or nicknames
+</a>
+</p>
 
-im mostly nonverbal unless im with friends. so dont expect good replies with me im not the type of person to socialize around people i dont know
+<p align="center">
+systemㅤ<img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/orange%20pixel/orange101">ㅤhe/anyㅤB-7ㅤim kool as heck
+</a>
+</p>
 
-im offtab 24/7 whisper me to get my attention -_-
+<p align="center">
+<img src="https://64.media.tumblr.com/0534667cb21bd740a82b3c6643856872/e07059c5b5aaa6ce-c9/s1280x1920/fbb27b23ce7ff8666bc059b2a23cb538a67e7c0f.gifv">
+</a>
+</p>
 
-c*h freely ok i dont bite
-
-
-![south-park-kyutters](https://github.com/user-attachments/assets/fc9584ad-abf1-4bdf-8bd5-46b8c96774f3)
-
-any ships with cartman are on thin ice. cartters/kyman on HARD dni
-
-dnd = int, semi-afk
-
-idle = not on tab, away
-
-'fict' in my names does not mean fictionkin. its fictive :-P
-
-just be nice and we are kool.
+<p align="center">
+$\color{turquoise}{\textsf{ponytown info!!!!!!}}$
+</a>
+</p>
+<p align="center">
+im offtab 24/7 unless you whisper me to get my attention, sometimes i dont check because im LAZY and FAT.    
+</a>
+</p>
+<p align="center">
+i dont pay attention during conversations, im easily distracted as i would go offtab during our talkin, sorry       
+</a>
+</p>
+<p align="center">
+i come off nonverbal first meet, ill warm up to you eventually       
+</a>
+</p>
+<p align="center">
+i have a HUGE cuddle comfort, c*h is ENCOURAGED!!!! ples sit wit my pixels unless im w frens       
+</a>
+</p>
+<p align="center">
+<img src="https://64.media.tumblr.com/0534667cb21bd740a82b3c6643856872/e07059c5b5aaa6ce-c9/s1280x1920/fbb27b23ce7ff8666bc059b2a23cb538a67e7c0f.gifv">
+</a>
+</p>
+<p align="center">
+$\color{orange}{\textsf{notes}}$
+</a>
+</p>
+<p align="center">
+🌙 = fully away, no responses or any sort!!!
+</a>
+</p>
+<p align="center">
+⛔ = semi-tab, int       
+</a>
+</p>
+<p align="center">
+fict = fictive OR fictionkin
+</a>
+</p>
+<p align="center">
+sys = system, you get the point !
+</a>
+</p>
+<p align="center">
+<img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/orange%20pixel/orange95">       
+</a>
+</p>
+<p align="center">
+anyone can interact freely UNLESS if you're not on my dni, you can check out the $\color{red}{\textsf{dni}}$ in my strawpage.
+</a>
+</p>
+<p align="center">
+just dont be an asshole, a weirdo, a problematic dude. and we're kool. alright ! 
+</a>
+</p>
+<p align="center">
+<img src="https://media1.tenor.com/m/B8-l4MNXnGMAAAAd/clyde-donovan-south-park.gif">   
+</a>
+</p>
