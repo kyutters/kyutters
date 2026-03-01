@@ -67,6 +67,14 @@ $\color{orange}{\textsf{notes}}$
 </a>
 </p>
 <p align="center">
+nvuf = nonverbal unless friends       
+</a>
+</p>
+<p align="center">
+sv = semi-verbal       
+</a>
+</p>
+<p align="center">
 fict = fictive OR fictionkin
 </a>
 </p>
